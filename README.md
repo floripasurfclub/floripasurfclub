@@ -9,8 +9,10 @@ The activities of our team began in the mid-1990s, with the pioneering work of D
 Qualified instructors for this practice, professional equipment and advanced techniques guarantee cutting-edge work in and out of the water.
 
 **Surf Lessons with Prof. Roger - 48 99991 3535**
+  
+  - [floripasurfclub.github.io](https://floripasurfclub.github.io/)
 
-Follow our day-to-day on instagram: @ floripasurfcluboficial
+Follow our day-to-day on instagram: [@floripasurfcluboficial](https://www.instagram.com/floripasurfcluboficial)
 
 🏄 Surf Club – Surf School – Rental and sales
 
